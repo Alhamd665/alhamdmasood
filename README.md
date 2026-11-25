@@ -1,4 +1,4 @@
-Hey there! 👋 I'm Al-hamd Masood
+Hey there! 👋 I'm Al-hamd Maqsood
 
 🎓 2nd Year Student | Aspiring Full Stack Developer
 
